@@ -6,5 +6,5 @@
 - 🤔 I’m looking for help with career positioning and finding a new job
 - 💬 Ask me about music, camping/backpacking and other outdoorsy things
 - 📫 How to reach me: alecp39@gmail.com
-- ⚡ Fun fact: I play multiple instruments and can play several of them while riding a unicycles
+- ⚡ Fun fact: I play multiple instruments and can play several of them while riding a unicycle
 -->
